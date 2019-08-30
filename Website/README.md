@@ -1,1 +1,1 @@
-https://bilgenas.github.io/mobileassistforcryptomarkets.github.io/
+https://nasblge.github.io/mobileassistforcryptomarkets.github.io/
